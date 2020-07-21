@@ -85,4 +85,4 @@ Para obtener más información, consulte: https://blog.mikrotik.com/security/win
 `` `
 
 ## Copyright
- - Patrocinado por el CERTCC de Irán (https://certcc.ir). Todos los derechos reservados.
+ - OcTha_DroidXz2OO5
